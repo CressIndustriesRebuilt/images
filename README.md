@@ -9,3 +9,5 @@
 ![image](https://cdn.discordapp.com/attachments/963931265139109888/964196273227980911/renegaderaidercheckered-fortnite.png)
 
 ![image](https://cdn.discordapp.com/attachments/963931265139109888/964196273454461008/renegaderaider-fortnite.png)
+
+![image](https://cdn.discordapp.com/attachments/958373142647173211/964230757855936542/redline-fortnite.png)
