@@ -1,4 +1,4 @@
-# GUI
+# images
 
 ![image](https://cdn.discordapp.com/attachments/963931265139109888/964196272288456774/axeofchampions-fortnite.png)
 
